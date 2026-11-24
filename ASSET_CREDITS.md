@@ -1,0 +1,1 @@
+Photos downloaded from public Instagram posts by [@casaangelita.ceramics](https://www.instagram.com/casaangelita.ceramics/) on 2026-11-24: Nov 24, Oct 27, Oct 6 and Sep 25, 2026. Confirm image rights and approved copy before production use.
